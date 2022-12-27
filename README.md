@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Adamthefirstmantogetlaid
-- 👀 I’m interested in finding my old bitcoins and other things! 
-- 🌱 I’m currently learning more about green $ ...
-- 💞️ I’m looking to collaborate on whatever! Pot grow coins nfts
-- 📫 How to reach me ...Adamness50@gmail.com/Cash1515 snapchat
+- 👀 I’m interested in pharmacies 
+- 🌱 I’m currently learning more about $$
+- 💞️ I’m looking to collaborate on bars
+- 📫 How to reach me ..Snapchat Cash1515 message me 
 
 <!---
 Adamthefirstmantogetlaid/Adamthefirstmantogetlaid is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
